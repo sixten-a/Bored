@@ -1,4 +1,4 @@
-go and read what to do.md
+go and read what to do.md or red this and follow me
 
 
 1.clean your room
